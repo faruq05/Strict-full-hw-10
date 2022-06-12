@@ -1,0 +1,1 @@
+# Strict-full-hw-10
